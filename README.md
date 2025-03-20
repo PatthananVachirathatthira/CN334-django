@@ -1,1 +1,0 @@
-6610742493 Patthanan Vachirathatthira
